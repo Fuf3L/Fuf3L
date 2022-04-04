@@ -1,3 +1,1 @@
-- 👋 Hi, I’m @Fuf3L
-- 👀 I’m interested in coding on C++, java, opengl and phyton
-- 🌱 I’m currently learning English
+man this cringeeeeeeeeeeeeeeeee
